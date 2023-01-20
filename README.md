@@ -3,7 +3,8 @@
 ## Problemáticas
 
 #### Fin respuesta
-
+Denis Ruiz
+Fernando Muñoz 
 ***
 
 ### Problema 01
